@@ -30,4 +30,4 @@ We may update this policy from time to time. Changes will be posted in this file
 
 ## Contact
 
-For questions about this policy, contact: Maartenk0912@gmail.com   
+For questions about this policy, contact: support@mm2crazy.com   
